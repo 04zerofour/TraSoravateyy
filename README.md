@@ -1,2 +1,0 @@
-birthday message
-for friend
